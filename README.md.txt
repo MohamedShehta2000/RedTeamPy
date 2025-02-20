@@ -1,1 +1,0 @@
-"C:\Users\ka\Downloads\9fdb52be-c410-45d2-bd50-d445e5cd2871.png"
